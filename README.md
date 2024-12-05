@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I am currently learning more than I can put into words and enjoying every second of it! 
+I'm always happy to help or collaborate in any way I can, so don't be shy.
+The best way to reach me is through Slack.
+pronouns: She/Her 
+Fun Fact: Aviaton is my greatest passion and flying will never get old! 
